@@ -1,0 +1,1 @@
+# Asus-ROG-Strix-GL503GE-Hackintosh
